@@ -1,3 +1,3 @@
-# I love Hololive
+# I love Kizuna Ai.
 
-Gura is the best waifu.
+Kizuna Ai is the best waifu.
