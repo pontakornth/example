@@ -1,3 +1,3 @@
-# I love Kizuna Ai.
+# Amoung Us
 
-Kizuna Ai is the best waifu.
+Everything is sus.
