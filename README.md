@@ -1,3 +1,3 @@
-# I love Kizuna Ai.
+# I love Fubuki.
 
-Kizuna Ai is the best waifu.
+But, Kizuna Ai is the best waifu.
